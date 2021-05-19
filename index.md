@@ -1,2 +1,2 @@
 ### Godt Spørgsmål, 
-Veerne er startet 02:30 i nat, Jack støtter og koordinerer, men Jack er ikke blevet far endnu <img src="https://raw.githubusercontent.com/JackAndersen/erJackBlevetFar/main/_includes/waiting.gif" width="40px">
+Ja, Jack blev far d. 19. Maj 2021 kl. 01:39 <img src="https://raw.githubusercontent.com/JackAndersen/erJackBlevetFar/main/_includes/manholdingbaby.gif" width="40px">
